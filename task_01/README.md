@@ -1,0 +1,1 @@
+## Cost of rent dedicated servers on Hetzner
